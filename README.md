@@ -1,2 +1,2 @@
 # Uljiro
-Dohyeon was impressed by old signs that were elaborately lined on acrylic panel and cut off with rulers. The strokes of consonants and vowels are connected, with catches sight. The shape of consonants like “ㅅ,ㅈ,ㅎ” become different according to which vowels come after. Such rule is called Glyph, and it was first applied to Korean calligraphy in Dohyeon.
+Euljiro is made based on the hand-painted shop signs in Eulji-ro, painted by unknown craftsmen. It features a powerful start of each stroke and a relaxed touch of a paintbrush.
